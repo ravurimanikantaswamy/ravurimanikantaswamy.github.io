@@ -1,1 +1,0 @@
-# ravurimanikantaswamy.github.io
